@@ -1,4 +1,4 @@
-# GalaxySwapper V2
+# GalaxySwapper V2 🌌
 
 # 📁[𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱]()
 
